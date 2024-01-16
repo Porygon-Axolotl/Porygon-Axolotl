@@ -1,3 +1,3 @@
-MOST IF MY REPOS ARE PRIVATE
+MOST OF MY REPOS ARE PRIVATE
 
 I exist in space and time :)
